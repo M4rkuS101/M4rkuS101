@@ -14,11 +14,11 @@
 $\color{#958d82}{\text{a fucking TBoTV / TLPA fan.}}$
 
 <p align="center">
-  $\color{#5a747b}{\text{✺, Mark101, ⊮, ꕚ  Fictionalkin.}}$
+  $\color{#5a747b}{\text{✺, Mark101, ⊮, ꕚ  Fıctıonalkın.}}$
   <p align="center">
-    $\color{#26385c}{\text{c+h only if I'm alone, don't need 2 ask.}}$
+    $\color{#26385c}{\text{c+h only ıf I'm alone, don't need 2 ask.}}$
     <p align="center">
-    $\color{#1f166f}{\text{I love swearing, dni if you hate swears.}}$
+    $\color{#1f166f}{\text{I love swearıng.}}$
     
   <p align="center">
 <img width="360" height="191" alt="17826571729453234199255909476703" src="https://github.com/user-attachments/assets/7ddbef5c-8f2b-4926-b45e-dd75180c5dea" />
@@ -31,16 +31,16 @@ $\color{#958d82}{\text{a fucking TBoTV / TLPA fan.}}$
       <h2>Fandoms:</h2>
       <p>
        
- MC: SFAWTDE/DAWTDE. TBOTV/TLPA. SIKAYD/SIYH. Unstable Universe(?). Judemines2006. A ReGect.;(I'll add more if I'll remember.) 
+ MC: SFAWTDE/DAWTDE. TBOTV/TLPA. SIKAYD/SIYH. Unstable Unıverse(?). Judemines2006. A ReGect.;(I'll add more ıf I'll remember.) 
 
-others: Rodamrix, Fnf Vs Imp V4,AvA/Avm(?),Vocaloid(?),Sprunki, Solarballs,Countryhumans(?),HTTYD,LHG(Let Him Go),Kotiynet,TBS(The Broken Script),bunnycat & more.
+others: Rodamrıx, Fnf Vs Imp V4,AvA/Avm(?),Vocaloıd(?),Sprunkı, Solarballs,Countryhumans(?),HTTYD,LHG(Let Hım Go),Kotıynet,TBS(The Broken Scrıpt),bunnycat & more.
 </p>
     </td>
   </tr>
 </table>
 
 <p align="center">
-$\color{red}{\text{DNI: darkshippers, multishippers, Pick me.}}$
+$\color{red}{\text{DNI: darkshıppers, multıshıppers, Pıck me.}}$
 
 <p align="center">
 <img width="480" height="310" alt="17826569292958351178855664489942" src="https://github.com/user-attachments/assets/5ba68aec-6961-464f-8633-dec58ea41f0b" />
