@@ -31,7 +31,7 @@ $\color{#958d82}{\text{a fucking TBoTV / TLPA fan.}}$
       <h2>Fandoms:</h2>
       <p>
        
- MC: SFAWTDE/DAWTDE. TBOTV/TLPA. SIKAYD/SIYH. Unstable Unıverse(?). Judemines2006. A ReGect.;(I'll add more ıf I'll remember.) 
+ MC: SFAWTDE/DAWTDE. TBOTV/TLPA. SIKAYD/SIYH. Unstable Unıverse(?). Judemines2006. A ReGect. THEDECAYED. collınlock16(?). OldRoot.;(I'll add more ıf I'll remember.) 
 
 others: Rodamrıx, Fnf Vs Imp V4,AvA/Avm(?),Vocaloıd(?),Sprunkı, Solarballs,Countryhumans(?),HTTYD,LHG(Let Hım Go),Kotıynet,TBS(The Broken Scrıpt),bunnycat & more.
 </p>
