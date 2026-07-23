@@ -18,7 +18,7 @@ $\color{#958d82}{\text{a fucking TBoTV / TLPA fan.}}$
   <p align="center">
     $\color{#26385c}{\text{c+h only ıf I'm alone, don't need 2 ask.}}$
     <p align="center">
-    $\color{#1f166f}{\text{I love swearıng.}}$
+    $\color{#1f166f}{\text{can be slow resp.}}$
     
   <p align="center">
 <img width="360" height="191" alt="17826571729453234199255909476703" src="https://github.com/user-attachments/assets/7ddbef5c-8f2b-4926-b45e-dd75180c5dea" />
