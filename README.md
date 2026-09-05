@@ -1,7 +1,8 @@
 <p align="center">
-<img width="700" height="338" alt="image" src="https://github.com/user-attachments/assets/7e802a4c-e757-4196-bd21-9b5b5948d525" />
+<img width="819" height="229" alt="image" src="https://github.com/user-attachments/assets/6aef1c9b-5839-416a-b067-7efaabd1d89a" />
 
-
+<p align="center">
+<img width="653" height="69" alt="Знімок_екрана_2026-09-05_102915-removebg-preview" src="https://github.com/user-attachments/assets/6dacb806-1a98-4fff-aad4-1240d8b758ed" />
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
