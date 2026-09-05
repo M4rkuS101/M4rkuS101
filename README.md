@@ -1,18 +1,38 @@
-<p align="center">
-<img width="774" height="152" alt="Записування з екрана 2026-09-05 142436" src="https://github.com/user-attachments/assets/631f8c6a-0585-40bd-93d5-c387b7765287" />
 
 <p align="center">
-<img width="653" height="69" alt="Знімок_екрана_2026-09-05_102915-removebg-preview" src="https://github.com/user-attachments/assets/6dacb806-1a98-4fff-aad4-1240d8b758ed" />
-
-<img width="526" height="123" alt="sea" src="https://github.com/user-attachments/assets/b6a3550e-917e-49f1-8947-08dd4a292202" />
+  <img width="772" height="160" alt="Записування з екрана 2026-09-05 150336" src="https://github.com/user-attachments/assets/3519bfa5-1bb6-48ba-b919-66c0625656c5" />
 
 
+</p>
 
-  <p align="center">
-<img width="663" height="61" alt="Знімок_екрана_2026-09-05_141958-removebg-preview" src="https://github.com/user-attachments/assets/2505bd71-ea98-48ac-be08-73782dbe7b27" />
+<br>
+
+<p align="center">
+<img width="780" height="146" alt="Записування з екрана 2026-09-05 152026" src="https://github.com/user-attachments/assets/d4957166-7233-4b52-b2df-9c6917e57916" />
+
+</p>
+
+<br>
+
+<table>
+  <tr>
+    <td width="66%">
+      <img width="578" height="130" alt="Записування з екрана 2026-09-05 151130" src="https://github.com/user-attachments/assets/152ec2a8-a9af-4394-89cb-797e4f03fee5" />
+    </td>
+    <td width="9%"></td>
+    <td width="25%">
+      <img width="198" height="110" alt="Записування з екрана 2026-09-05 143624" src="https://github.com/user-attachments/assets/b9ad725d-de88-4246-acaf-3944aa308a45" />
+
+   </td>
+  </tr>
+</table>
+
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31b7rlheccpc6whjf7ppqftkif6y&cover_image=true&theme=default&show_offline=false&background_color=190101&interchange=false&profanity=false&hide_remaster=false&bar_color=dc3004">
   </a>
 </p>
+
+
