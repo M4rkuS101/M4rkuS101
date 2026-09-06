@@ -6,3 +6,6 @@
 </p>
 
 
+
+<p align="center">
+🌙-offtab/afk  .  ⛔-busy/making skins  .  🟢-free to int
