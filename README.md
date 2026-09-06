@@ -1,7 +1,5 @@
 <p align="center">
 <img width="889" height="71" alt="Без_названия__1_-removebg-preview" src="https://github.com/user-attachments/assets/f99e65ef-5472-443c-b461-2d71003b2cac" />
-
-
 <p align="center">
 <table>
   <tr>
