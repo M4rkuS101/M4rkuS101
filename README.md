@@ -30,6 +30,9 @@
   <a href="https://x.com/M4rkus101">
   <img src="https://img.shields.io/badge/X-000000?style=for-the-badge&logo=x&logoColor=white">
 </a>
+<a href="https://www.pinterest.com/M4rkus_101/">
+  <img src="https://img.shields.io/badge/Pinterest-E60023?style=for-the-badge&logo=pinterest&logoColor=white">
+</a>
       </p>
     </td>
   </tr>
