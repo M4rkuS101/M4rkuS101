@@ -20,6 +20,8 @@
       <p align="center">
       <p>
         🌙-offtab/afk  .  ⛔-busy/making skins  .  🟢-free to int
+
+[Discord](https://discord.com/users/1356558958222901299)
       </p>
     </td>
   </tr>
