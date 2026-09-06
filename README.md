@@ -7,8 +7,7 @@
   <tr>
     <td rowspan="2" width="50%" valign="middle">
       <p align="center">
-      <img width="376" height="531" alt="image" src="https://github.com/user-attachments/assets/1fb5205f-4633-42f3-9fdb-192aa0aca07d" />
-    </td>
+<img width="390" height="477" alt="adachi_rei_by_animatioiledup_dme1qvg-pre-removebg-preview-fotor-20260906184850 (1)" src="https://github.com/user-attachments/assets/6d9ce7dd-1df2-4712-9fca-73cc23adbe55" />    </td>
     <td width="50%" valign="top">
       <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
